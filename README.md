@@ -1,0 +1,1 @@
+Olá, Meu nome é Fernando de Paula, então você é aluno de ADS, e estuda HTML, CSS JS, PHP e Mysql, não está no nível de iniciante, porém focado em aprender. Estou disposto a ajudar em projetos pra adquirir experiência . Estou a disposição no E-mail, fernandohenrique.dic@gmail.com
